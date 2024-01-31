@@ -1,3 +1,7 @@
+
+MAGIC DOES WONDERS
+
+
 - 👋 Hi, I’m @crypWizcoin
 - 👀 I’m interested in getting to know this community
 - 🌱 I’m currently learning programming
